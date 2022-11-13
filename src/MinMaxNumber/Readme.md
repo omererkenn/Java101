@@ -1,0 +1,1 @@
+Collections kütüphanesinden yararlanıldı.
